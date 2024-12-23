@@ -5,7 +5,7 @@
 - 📫 How to reach me ... found below
 - 📧 jseabrook4@gmail.com 
 - 😄 Pronouns: Him/He/They
-- ⚡ Fun fact: It's like a new lifetime of experiencebevery day that you do something genuine and new.
+- ⚡ Fun fact: It's like a new lifetime of experience can be earned every day that you do something genuine, spontaneous and new-to-you.
 
 <!---
 jshsbrk/jshsbrk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
